@@ -6,3 +6,6 @@
 >["No place I'd rather be," Brown said in the post that hit the web around 2 pm on Monday.  "Let's run it back!"](https://www.komu.com/sports/mizzous-brown-confirms-hes-staying/article_5846e076-cfd3-11ec-892e-0345eaac3ee3.html)
 
 His commitment to Mizzou and our program made me a **huge** fan. I can't wait to see what Kobe can do for the University on the court this year.
+
+#### Other Players to Watch For
+1. [Noah Carter, scoring 
