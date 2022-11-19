@@ -14,3 +14,5 @@ Kidding. Maybe in a few years, but I don't think this new team is there quite ye
 | kansas | L, 88-79 |
 
 That's right, as much as I want us to beat kansas, I think we still need a little more time to gel as a team. I hope I'm wrong, but I would not bet against it.
+
+#### This puts us at 9-1 mid-December. If we keep up the pace and take care of business, I predict us being an 8-seed in the NCAA Tournament come March. You heard it here first!
